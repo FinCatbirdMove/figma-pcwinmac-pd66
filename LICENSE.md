@@ -1,4 +1,4 @@
-# 
+# Inteligente Figma flujo de trabajo para Mac OS | Último Figma flujo de trabajo para PC Windows. Con herramienta licuar y colaboración en tiempo real — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
